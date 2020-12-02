@@ -7,7 +7,8 @@
 2. Вовлечение студентов и преподавателей в жизнь факультета, а также привлечение их в мероприятия, связанных со сферой ИТ
 3. Расширение узнаваемости факультета,  а также привлечение новых партнеров. 
 
-##Перецень рубрик и направленность каждой: https://docs.google.com/document/d/1JGU4UQxdeGrDGy6Uc97ypQWDsXb5HGfFAiCr0-5ms0M/edit?usp=sharing
+## Перечень рубрик и направленность каждой: 
+https://docs.google.com/document/d/1JGU4UQxdeGrDGy6Uc97ypQWDsXb5HGfFAiCr0-5ms0M/edit?usp=sharing
 
 
 
